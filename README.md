@@ -16,7 +16,7 @@
  >   ‎  ‎  ‎ ‎  ‎   ‎ therian ━ **robotkin** (**cybertronian**)
 
 **`🔧`** ‎ ━ **import. info.** **:** ‎ i ask for patience as im pretty slow, and also understanding because its easy for me to feel uncomfortable/overwhelmed talking to new people!!
-> stuff like **whisp. to int** is very helpful ━ along with using **tonetags** as i am pretyy bad at being able to read tone properly!
+> stuff like **whisp. to int** is very helpful ━ along with using **tonetags** as i am pretty bad at being able to read tone properly!
 
 
 
