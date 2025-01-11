@@ -8,7 +8,7 @@
 >
 >  ‎  ‎  ‎ ‎  ‎   ‎ **autistic**, **adhd** & bpd (and unfortunately more,,)
 >
-> ‎**transformers** is my <ins>spinterest</ins>, however i like a bunch of other things (im hyperfixating on sonic atm), i recommend reading my [strawpage](https://silvrshanix.straw.page) as it goes into depth about my interests and other stuff!  ━  [kins](https://silvrfishie.carrd.co/)
+> ‎**transformers** is my <ins>spinterest</ins>, however i like a bunch of other things (im hyperfixating on sonic atm), i recommend reading my [strawpage](https://silvrshanix.straw.page) as it goes into depth about my interests and other stuff!
 
  **`🔩`** ‎ ━ **labels.** orientation/identity ‎ **:** ‎ 
  > **gay**, transgender (<ins>**ftm**</ins> ━ transmasc), traitblur, pupgender & recipriosexual
