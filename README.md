@@ -8,10 +8,10 @@
 >
 >  ‎  ‎  ‎ ‎  ‎   ‎ **autistic**, **adhd** & bpd (and unfortunately more,,)
 >
-> ‎**transformers** is my <ins>spinterest</ins>, however i like a bunch of other things (im hyperfixating on ultrakill atm), i recommend reading my [strawpage](https://silvrshanix.straw.page) as it goes into depth about my interests and other stuff!
+> ‎**transformers** is my <ins>spinterest</ins>, however i like a bunch of other things (im hyperfixating on ultrakill atm), i recommend reading my [slides]([https://silvrshanix.straw.page](https://docs.google.com/presentation/d/1kI8yK5cmzCd5IbnNByYXYpe79OszV-VVP1YIDfHAgkM/edit?usp=sharing) as it goes into depth about my interests and other stuff!
 
  **`🔩`** ‎ ━ **labels.** orientation/identity ‎ **:** ‎ 
- > **gay**, transgender (<ins>**ftm**</ins> ━ transmasc), traitblur, pupgender & recipriosexual
+ > **gay**, transgender (<ins>**ftm**</ins> ━ transmasc), traitblur, pupgender & reciprioromantic - recipriosexual
 >
  >   ‎  ‎  ‎ ‎  ‎   ‎ therian ━ **robotkin** (**cybertronian**)
 
