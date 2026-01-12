@@ -3,8 +3,8 @@
 ![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)
 ## ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/16c85c5d-5e0c-4930-a3af-a015ce6d2dcc/dd7uzao-4e061387-b307-40fb-ae72-516342eea37c.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzE2Yzg1YzVkLTVlMGMtNDkzMC1hM2FmLWEwMTVjZTZkMmRjY1wvZGQ3dXphby00ZTA2MTM4Ny1iMzA3LTQwZmItYWU3Mi01MTYzNDJlZWEzN2MuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.AIpCtz1skzLEgma7BLC0qffXL_oYPORbaM2DzjK4htc) ‎  **SIL** or SILVR ᯓ ★ ‎ 
 
- **`⚙️`** ‎ **:** ‎ he/‎him ‎+ **mech.** ━ **masc.**  terms only
-> **6**teen ‎ (‎‎08/**25**) ‎ ***+*** ‎ **taken** by my [**conjunx**](https://www.patreon.com/gartssilly/about)!! ━ <ins>always sitting with him</ins> <33
+ **`⚙️`** ‎ **:** ‎ he/‎him ‎+ **sae.** ━ **masc.**  terms only
+> **7**teen ‎ (‎‎08/**25**) ‎ ***+*** ‎ **taken** by my [**conjunx**](https://www.patreon.com/gartssilly/about)!! ━ <ins>always sitting with him</ins> <33
 >
 >  ‎  ‎  ‎ ‎  ‎   ‎ **autistic**, **adhd** & bpd (and unfortunately more,,)
 >
