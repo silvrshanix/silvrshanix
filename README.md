@@ -3,7 +3,7 @@
 ![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)
 
  **`💉🩸`** ‎ **:** ‎ he/‎him/**sae.** ━ **masc.**  terms  &  *slightly*  **fem.**  terms  are  okay!!
-> **7**teen ‎ (‎‎08/**25**) ‎ ***+*** ‎ **taken** by my [**conjunx**](https://www.patreon.com/gartssilly/about)!! ━ <ins>always sitting with him</ins> <33
+> **7**teen ‎ (‎‎08/**25**) ‎ ***+*** ‎ **taken** by my [**conjunx**](https://docs.google.com/presentation/d/1VwcSGvzmOb2Xxty5d8G1k5CxV7olvcPkfFerNwmVyv0/edit?slide=id.p#slide=id.p)!! ━ <ins>always sitting with him</ins> <33
 >
 >  ‎  ‎  ‎ ‎  ‎   ‎ **autistic**, **adhd** , *sys* & bpd (and unfortunately more,,)
 >
