@@ -4,11 +4,11 @@
 ![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)
 
  **`💉🩸`** ‎ **:** ‎ he/‎him/**sae.** ━ ***masc.***  terms  &  *slightly*  **fem.**  terms  are  okay!!
-> **7**teen ‎ (‎‎08/**25**) ‎ ***+*** ‎ **taken** by my [**conjunx**](https://docs.google.com/presentation/d/1VwcSGvzmOb2Xxty5d8G1k5CxV7olvcPkfFerNwmVyv0/edit?slide=id.p#slide=id.p)!! ━ <ins>always sitting with him</ins> <33
+> **7**teen ‎ (‎‎08/**25**) ‎ ***+*** ‎ **taken** by my [**conjunx**](https://docs.google.com/presentation/d/1VwcSGvzmOb2Xxty5d8G1k5CxV7olvcPkfFerNwmVyv0/edit?slide=id.p#slide=id.p)!! ━ <ins>always sitting with him</ins> , or friends!
 >
 >  ‎  ‎  ‎ ‎  ‎   ‎ **autistic**, **adhd** , ***sys*** & bpd (and unfortunately more,,)
 >
-> ‎**transformers** is my <ins>spinterest</ins>, however i like a bunch of other things (im hyperfixating on mtmte atm), i recommend reading my [strawpage](https://pharmacide.straw.page/) as it goes into depth about my interests and other stuff!
+> ‎**transformers** is my <ins>spinterest</ins>, however i like a bunch of other things (im hyperfixating on mtmte atm), i recommend reading my [strawpage](https://pharmacide.straw.page/) as it goes into depth about my interests and other stuff! - feel free to also sign my [guestbook](https://pharmacide.atabook.org/?page=1)!!
 
  **`🚑`** ‎ ━ **labels.** orientation/identity ‎ **:** ‎ 
  > **gay**, transgender (<ins>**ftm**</ins> ━ transmasc), traitblur & reciprioromantic - recipriosexual
