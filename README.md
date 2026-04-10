@@ -1,5 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=pharmacide&color=red)
-<p align="center"><img src="https://woahaahahahhh.carrd.co/assets/images/image13.png?v=cc007c56f"</p>
+<p align="center"><img src="https://woahaahahahhh.carrd.co/assets/images/image14.png?v=70746adc"</p>
 
 ![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)
 
