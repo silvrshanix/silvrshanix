@@ -8,7 +8,7 @@
 >
 >  ‎  ‎  ‎ ‎  ‎   ‎ **autistic**, **adhd** , ***sys*** & bpd (and unfortunately more,,)
 >
-> ‎**transformers** is my <ins>spinterest</ins>, however i like a bunch of other things (im hyperfixating on mtmte atm), i recommend reading my [strawpage](https://pharmacide.straw.page/) as it goes into depth about my interests and other stuff! - feel free to also sign my [guestbook](https://pharmacide.atabook.org/?page=1)!!
+> ‎**transformers** is my <ins>spinterest</ins>, however i like a bunch of other things! feel free to also sign my [**guestbook**](https://pharmacide.atabook.org/?page=1)!!
 
  **`🚑`** ‎ ━ **labels.** orientation/identity ‎ **:** ‎ 
  > **gay**, transgender (<ins>**ftm**</ins> ━ transmasc), traitblur & reciprioromantic - recipriosexual
