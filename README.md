@@ -19,7 +19,7 @@
 > stuff like **whisp. to int** is very helpful ━ along with using **tonetags** as i am pretty bad at being able to read tone properly!
 
 
-![](https://64.media.tumblr.com/ae239960f6daae72eb9a5f233b4b8904/5ffe864cc72d3596-82/s400x600/c2fcae012a6fb8c5e27e10d4648bae1e91f74e65.gifv)![](https://64.media.tumblr.com/ae239960f6daae72eb9a5f233b4b8904/5ffe864cc72d3596-82/s400x600/c2fcae012a6fb8c5e27e10d4648bae1e91f74e65.gifv)
+
 
 ![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)
 
